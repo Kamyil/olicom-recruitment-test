@@ -1,1 +1,0 @@
-# olicom-recruitment-test
